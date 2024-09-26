@@ -10,4 +10,4 @@ aoaoao
 
 new changes from diman
 new changes from xxxtentacion
-skr papapa!!! i kill your mother!!
+skr papapa!!!
